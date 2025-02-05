@@ -40,7 +40,7 @@ Além disso, participei de alguns eventos como: SNCT 2022 e 2023, Hackathon Quer
 ### Shortcuts
 
 Veja também meus posts em outras redes sociais!
-[Behance](),
+[Instagram](https://www.instagram.com/carlos.incode),
 [LinkedIn](https://www.linkedin.com/in/carlos-santos-747bb8251/)
 
 Feito com apreço por Carlos ツ
