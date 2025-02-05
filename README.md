@@ -8,7 +8,7 @@ Além disso, participei de alguns eventos como: SNCT 2022 e 2023, Hackathon Quer
 </div>
 <br>
 
-![Frame](https://github.com/LotorId/LotorId/assets/113157343/e11fb5c1-c6dd-4636-8584-4913468a72e3)
+![sarah-dorweiler-x2Tmfd1-SgA-unsplash](https://github.com/user-attachments/assets/6dd9bb83-9fde-4cd7-ac25-cc0cf22a43c3)
 
 ### About me
 
